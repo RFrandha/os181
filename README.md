@@ -10,3 +10,5 @@ ZCZC W03 mengaku sudah pak
 ZCZC W04 aman pak 
 
 ZCZC W05 sudah pak
+
+ZCZC W06 oke pak
